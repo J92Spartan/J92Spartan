@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @J92Spartan
 - 👀 I’m interested in our Planet
 - 🌱🌍🌎🌏 I’m currently learning of humanity
-- 👁️☺️☠️ I’m looking to collaborate with life, peace and dearth
+- 👁️☺️☠️ I’m looking to collaborate with life, peace and death
 - 📫 ☺️ How to reach me and improve
 
 <!---
