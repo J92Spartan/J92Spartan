@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @J92Spartan
 - 👀 I’m interested in our Planet
-- 🌱 I’m currently learning of humanity
-- 👁️☺️☠️ I’m looking to collaborate with life and dearth
-- 📫 How to reach me and improve
+- 🌱🌍🌎🌏 I’m currently learning of humanity
+- 👁️☺️☠️ I’m looking to collaborate with life, peace and dearth
+- 📫 ☺️ How to reach me and improve
 
 <!---
 J92Spartan/J92Spartan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
